@@ -1,2 +1,0 @@
-## Contact
-[Twitter](https://twitter.com/__parag) | [Linkedin](https://www.linkedin.com/in/parag-poddar-697b13120/?lipi=urn%3Ali%3Apage%3Ad_flagship3_feed%3BMpOBB9uoTqCQ9KMUPpnGBw%3D%3D&licu=urn%3Ali%3Acontrol%3Ad_flagship3_feed-nav.settings_view_profile) | [Github](https://github.com/paragpoddar) | [Facebook](https://www.facebook.com/paragpoddar01) | [Email](paragpoddar01@gmail.com)
